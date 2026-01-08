@@ -1,5 +1,5 @@
 ## Project Title
-Side Quest Week: 
+Side Quest Week 1 
 
 ---
 ## Group Members
